@@ -4,18 +4,18 @@ ovojav视频发布页<br/>
 电脑用户按 <b>Ctrl+D</b> 收藏此页，手机可以截图保存。
 
 本月域名列表<br/>
-ovojav视频最新地址： 🧡[https://owo34.cc](https://www.owo34.cc)🧡
+ovojav视频最新地址： 🧡[https://ovo10.cc](https://www.ovo10.cc)🧡
 
-ovojav视频备用域名1：🧡[https://owo35.cc](https://www.owo35.cc)🧡
+ovojav视频备用域名1：🧡[https://ovo11.cc](https://www.ovo11.cc)🧡
 
-ovojav视频备用域名2：🧡[https://owo36.cc](https://www.owo36.cc)🧡
+ovojav视频备用域名2：🧡[https://ovo12.cc](https://www.ovo12.cc)🧡
 
 
 
 发送任意邮件到：ovojavcom@gmail.com 获取最新地址
 
-ovojav视频官方电报群：[https://t.me/owovideochat](https://t.me/owovideochat) <br />
-oovojav视频官方土豆群：[https://ymd168.org/owopronvideo](https://ymd168.org/owopronvideo)
+ovojav视频官方电报群：[https://t.me/ovojav](https://t.me/ovojav) <br />
+oovojav视频官方土豆群：[https://ptwdym158.org/ovojav](https://ptwdym158.org/ovojav)
 
 ovojav视频最新地址发布页，请收藏下面的所有地址，避免迷路 <br />
 [https://ovoav.org/](https://ovoav.org/)<br />
