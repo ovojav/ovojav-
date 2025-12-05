@@ -4,11 +4,11 @@ ovojav视频发布页<br/>
 电脑用户按 <b>Ctrl+D</b> 收藏此页，手机可以截图保存。
 
 本月域名列表<br/>
-ovojav视频最新地址： 🧡[https://ovo13.cc](https://www.ovo13.cc)🧡
+ovojav视频最新地址： 🧡[https://ovo14.cc](https://www.ovo14.cc)🧡
 
-ovojav视频备用域名1：🧡[https://ovo14.cc](https://www.ovo14.cc)🧡
+ovojav视频备用域名1：🧡[https://ovo15.cc](https://www.ovo15.cc)🧡
 
-ovojav视频备用域名2：🧡[https://ovo15.cc](https://www.ovo15.cc)🧡
+ovojav视频备用域名2：🧡[https://ovo11.cc](https://www.ovo11.cc)🧡
 
 
 
